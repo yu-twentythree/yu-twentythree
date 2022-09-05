@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 -->
 
 
-📫 How to reach me: 
+How to reach me: 
 
 [t.me/yu233]( https://t.me/yu233)
                   
